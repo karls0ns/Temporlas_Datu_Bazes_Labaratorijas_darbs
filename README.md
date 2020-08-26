@@ -1,0 +1,1 @@
+# Temporlas_Datu_Bazes_Labaratorijas_darbs
